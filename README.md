@@ -1,2 +1,2 @@
-## Hi there I am Anvay👋
+## Hi there I am Anvay
 
